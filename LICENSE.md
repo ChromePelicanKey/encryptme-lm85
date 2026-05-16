@@ -1,4 +1,4 @@
-
+Enhance your OpenVPN experience with OpenVPN vip Plugin: static-IP & money-back-guarantee, the #1 plugin. Includes static-IP and money-back-guarantee for a safer and more private
 
 
 
